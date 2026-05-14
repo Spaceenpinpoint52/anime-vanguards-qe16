@@ -1,4 +1,4 @@
-#  
+#  Experience anime vanguards like never before with anime vanguards Script stealth, the #1 Script. Includes anti-ban and auto-collect for unbeatable
 
 
 
